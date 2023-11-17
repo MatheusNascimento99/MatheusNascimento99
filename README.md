@@ -7,10 +7,14 @@ Por favor,fique à vontade! :smiley: :grin:
  Estou construindo o READ ME conforme vou aprendendo, mas não se acanhe, entre e contato e exponha seu pensamento, isso é o que nos conecta e nos faz grandes!!:earth_africa: <br>
  Vamos partilhar soluções! 
  
-## *Conect-se comigo!!* </br>
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=black)](https://www.linkedin.com/in/matheus-nascimento-106a00226/)
+## *Conect-se comigo!!* 
 
-<div>
+
+
+[https://www.linkedin.com/in/matheus-nascimento-106a00226/]
+</br>
+
+
 
 <a href="https://github.com/MatheusNascimento99">
 
