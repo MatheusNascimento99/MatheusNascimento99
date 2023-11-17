@@ -8,7 +8,7 @@ Por favor,fique à vontade! :smiley: :grin:
  Vamos partilhar soluções! 
  
 ## *Conect-se comigo!!* </br>
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=black)](https://www.linkedin.com/in/SEUUSERNAME/)
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=black)](https://www.linkedin.com/in/matheus-nascimento-106a00226/)
 
 <div>
 
